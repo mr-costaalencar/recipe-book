@@ -1,4 +1,4 @@
-# **Sopa de macarrão, legumes e carne**
+# Sopa de macarrão, legumes e carne
 
 ## Ingredientes:
 
