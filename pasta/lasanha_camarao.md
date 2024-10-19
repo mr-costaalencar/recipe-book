@@ -1,4 +1,4 @@
-# Lasanha de camarao
+# Lasanha de camarão
 
 ## Ingredientes
 
